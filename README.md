@@ -2,4 +2,4 @@
 - 📫 How to reach me:
 >
 > LinkedIn: Anthony Mashou
-> Instagram: @anthonymashou
+> Instagram: @mashou
